@@ -1,16 +1,16 @@
-## Hi there 👋
+hii everybody!!!!! we are Angel and Leslie
 
-<!--
-**papuangelpro/papuangelpro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-📅📌We're currently students
 
-Here are some ideas to get you started:
+-🗣 We're both learning to agree on many things
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+We're looking to collaborate help each other with subjects
+
+-Ask me anything about One Piece, we both enjoy it
+
+-Fun fact:
+
+Angel: I like music. I love artists like MF Doom, Alvaro Diaz, Kendrick Lamar
+
+Less: I enjoy writing, and my way of relieving stress is playing volleyball
+
